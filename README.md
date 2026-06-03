@@ -1,0 +1,1 @@
+# kasir_minimarket__Amanda_idezziaa
